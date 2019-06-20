@@ -1,1 +1,0 @@
-# Spider-by-Jalaj-Purohit
